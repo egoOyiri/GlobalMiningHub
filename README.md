@@ -7,3 +7,5 @@ https://edac.ca/conferences-awards/marketing-awards/gallery-of-entries/sudbury-a
 
 
 https://www.miningglobal.com/mining-sites/top-mining-companies-toronto-stock-exchange
+
+https://www.tsx.com/listings/listing-with-us/sector-and-product-profiles/mining
